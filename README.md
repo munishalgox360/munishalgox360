@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @munishalgox360
+- 👋 Hi, I’m Manish
 
-- 🌱 I’m currently WORKING on IBC.COM
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently WORKING on LBC and P2P
+- 💞️ I’m looking to collaborate ....
 
